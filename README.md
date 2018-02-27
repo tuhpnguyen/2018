@@ -1,1 +1,7 @@
 # 2018
+
+#GIT
+
+#SCRUM
+
+#LEADERSHIP
